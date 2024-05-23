@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ShamelVP
-- my name is Abdulrahman 
+- my name is You can call me shamel
 - 👀 I’m interested in ...coding and etc
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
